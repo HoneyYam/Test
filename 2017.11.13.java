@@ -1,1 +1,0 @@
-Daily project exercise
